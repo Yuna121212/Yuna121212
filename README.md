@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Yuna121212
+- 👋 Hi, I’m @Yuna
 - 👀 I’m interested in Coding, Writing, Dancing 
 - 🌱 I’m currently learning Playing the Piano
 - 💞️ I’m looking to collaborate on ANYTHING
